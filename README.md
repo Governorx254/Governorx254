@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Governorx254
-- 👀 I’m interested in ...making life better
+- 👀 I’m interested in ...making a better life
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...+254714880790
